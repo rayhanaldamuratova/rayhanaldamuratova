@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rayhanaldamuratova
-- 👀 I’m interested in IT
+- 👀 I’m interested in IT and Japanese
 - 🌱 I’m currently studying at school
 - 📫 How to reach me @rayhonaldamuratovvaa@gmail.com
 - 😄 Pronouns: she/her
