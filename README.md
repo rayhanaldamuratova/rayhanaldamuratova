@@ -4,6 +4,7 @@
 - 📫 How to reach me rayhonaldamuratovvaa@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I like watching anime 😁
+- i'm a batman
 
 
 <!---
